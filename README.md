@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on any projects that will help build a safer internet.
 - 📫 How to reach me 
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: Laughing came before language.
 
 <!---
 pocketjo00/pocketjo00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
